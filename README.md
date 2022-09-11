@@ -1,5 +1,7 @@
 # 🙌 Welcome
 
-If you are here, reading this, it is because you are trying to find out what we, Undisputed Noobs, are all about!
+Undisputed Noobs is more than just a guild, we are a family. 
 
-In this Whitepaper, we will outline who we are and how we work, as well as what we are building, what we have already built, and what our plans for future growth looks like.
+Likeminded members who want to enjoy some balanced escapism by playing web3 games with the safe knowledge that the assets they are aquiring, they own.
+
+We do not deply a Play and Earn mentality here, we focus on Playing to Own.
